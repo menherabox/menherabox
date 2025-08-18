@@ -1,7 +1,6 @@
-
-︶⊹︶︶୨୧︶︶⊹︶
+𓆝 𓆟 𓆞 𓆝 𓆟
   
-  <img width="470" height="400" src="https://i.pinimg.com/1200x/c4/47/85/c44785cefbe3d8cac33ab30a6d4e5794.jpg">
+  <img width="470" height="400" src="https://64.media.tumblr.com/afa30f7736cf6f6322ad47e32c11a1d5/0af0398d6df15142-4e/s540x810/7aea88e13ba3490609c06dc9a48c3a52049fa97d.pnj">
   *kills you*
 <!--
 **narusasusaku/narusasusaku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
